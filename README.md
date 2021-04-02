@@ -1,0 +1,2 @@
+# baru
+Gak tau anjeng
